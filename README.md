@@ -1,5 +1,5 @@
 -  Hi, I’m @felippegusmao
-- 👀 I’m interested in Cybersecurity an Music
+- 👀 I’m interested in Cybersecurity and Music
 - 🌱 I’m currently learning Cybersecurity
 - 💞️ I’m looking to collaborate on Cybersecurity Project
 - 📫 How to reach me: felippe.ygusmao@gmail.com
